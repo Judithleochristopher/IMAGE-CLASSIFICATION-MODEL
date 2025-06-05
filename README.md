@@ -17,3 +17,9 @@
 *output*:
 
 ![Image](https://github.com/user-attachments/assets/b9e87cc5-df30-414d-8b10-fc5d8feb1f38)
+
+![Image](https://github.com/user-attachments/assets/f7cc0a1d-7105-4f99-8ca5-f14eedea0f96)
+
+![Image](https://github.com/user-attachments/assets/9b1dd2c9-d606-441c-9085-1b65b48c2b09)
+
+![Image](https://github.com/user-attachments/assets/0de6f74e-deea-4ac1-840d-943350e66abc)
